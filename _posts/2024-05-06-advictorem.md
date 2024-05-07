@@ -1,4 +1,5 @@
 ## Ad Victorem
+<br>
 
 full dark dawns
 
@@ -35,6 +36,7 @@ we won.
 we won.
 
 
+<br>
+<br>
 
-
-<div style="text-align: right"> michael p. mcandrew </div>
+<p align="right"> michael p. mcandrew </p>
