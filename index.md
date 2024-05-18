@@ -1,19 +1,27 @@
-Some of us don't create anymore.
+I'd like to sit
 
-If everything has to be ironic to avoid being made the target of ridicule, 
-and if the robots are going to overwhelm us anyway, 
-and the dead internet howls around us,
-then what good is this?
+still quiet
 
-Nevertheless, I'd still like to sit, 
-quiet, 
-on a low hill beneath a tree, watching the moon fall around me.
+on a low hill beneath a tree
 
-And so I write.
+watching the moon fall around me
 
-A little, or a lot. All at once, or hardly ever at all.
-Not enough to depend on.
-Just enough to say there is some life left somewhere
-someway.
+and write
 
-Thank you for stopping by.
+a little or lot
+
+all arush or hardly ever
+
+not enough to depend on
+
+just enough to say
+
+there is some life left 
+
+somewhere someway
+
+and you'd sit too
+
+if we were true
+
+<p align="right">michael p. mcandrew</p>
