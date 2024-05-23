@@ -35,4 +35,4 @@ funeral.
 
 
 <br>
-<p align="right>michael p. mcandrew</p>
+<p align="right">michael p. mcandrew</p>
